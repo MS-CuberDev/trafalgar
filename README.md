@@ -1,1 +1,0 @@
-# trafalgar Mening Trafalgar maketim
